@@ -1,1 +1,0 @@
-smg-diwali-gatepass.html
